@@ -4,7 +4,7 @@
 
 - 📍 **Location:** Montréal, Québec, Canada  
 - ✉️ **Contact:** [bambodiatta@gmail.com](mailto:bambodiatta@gmail.com)  
-- 📞 **Phone:** +1 514 476 6562  
+- 📞 **Phone:** +1 438 483 4615  
 
 ---
 
